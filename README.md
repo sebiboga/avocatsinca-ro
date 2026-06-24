@@ -34,9 +34,3 @@ Site-ul oficial al cabinetului de avocatură **Șinca Radu Teodor**, membru al B
 - **Email:** [radusinca@yahoo.com](mailto:radusinca@yahoo.com)
 - **Program:** Luni–Vineri 8:00–16:00, pe bază de programare
 
-## Linkuri utile
-
-- [Baroul Cluj](https://www.baroul-cluj.ro)
-- [UNBR](https://www.unbr.ro)
-- [Avocat365 — Profil Șinca Radu Teodor](https://www.avocat365.ro/avocat/sinca-radu-teodor)
-- [Tabloul avocaților Baroul Cluj](https://www.baroul-cluj.ro/tabloul-avocatilor/avocati-definitivi/?wpv_view_count=11033&wpv_post_search=Sinca&wpv_filter_submit=Cautare)
